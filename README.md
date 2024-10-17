@@ -7,11 +7,15 @@
 
 ![image](./pics/0009.jpg) 
 
+![image](./pics/ONLY_WEEBS_2.jpeg) 
+
 ![image](./pics/RETF.jpg) 
 
 ![image](./pics/Untitled417_20210514233127-B0635.png) 
 
 ![image](./pics/a_black_and_white_image_of_a_person_falling_down.jpg) 
+
+![image](./pics/a_black_and_white_image_of_a_woman's_eyes.jpeg) 
 
 ![image](./pics/a_graphic_design_with_circles_and_lines.png) 
 
